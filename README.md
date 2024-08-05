@@ -2,7 +2,7 @@
 
 - 👀 91视频 永久地址（永久有效，谨防迷路，需翻墙）：https://sp.cool
 
-- 🌱 91视频 最新下载地址（免翻墙，激情看片）： https://fish.byepstcdg.com
+- 🌱 91视频 最新下载地址（免翻墙，激情看片）： https://uuu99.byepstcdg.com
 
 - 💞️ 91视频回家邮箱，发送任意信息到邮箱 zuixin5191@gmail.com 即可收到最新下载地址
 
